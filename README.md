@@ -1,4 +1,4 @@
-### Hi there 🤖👽
+### Hi there 👽
 ### My name is Kakemu and I am not much of what you think but a guru on what you don't think of😎.
 Mouse potatoe the call me.
         ###Fun fact:I deal with the tech snake and it had bit me not once...
