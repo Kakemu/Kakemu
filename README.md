@@ -1,6 +1,6 @@
 ### Hi there 👽
         ###Fun fact:I deal with the tech snake and it had bit me not once...
-I am currently learning how to pythonize if that makes sense to you
+My name is Daniel and I am learning how to code.
 <!--
 **My name is Kakemu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
